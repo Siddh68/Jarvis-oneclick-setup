@@ -27,7 +27,3 @@ You can also read this conversation - https://chatgpt.com/share/69317f5d-85e4-80
 
 Important - https://chatgpt.com/share/696551eb-8eb4-800c-897e-d163bb43ac04
 
-
------------------- Join The Indian AI Tech Community Now ------------------------
-
-Visit - https://www.youtube.com/@sachdevaAI
